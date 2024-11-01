@@ -5,8 +5,7 @@
 Bubbu MOD APK adalah game simulasi hewan peliharaan di mana pemain merawat seekor kucing virtual bernama Bubbu. Di dalam game ini, pemain memberi makan, merawat, mendandani, dan bermain dengan Bubbu, sambil menikmati mini-games yang seru dan memperoleh item secara gratis dengan fitur unlimited.
 
 
-👉Unduh Disini 😸: https://modhello.com/
-
+👉Unduh Disini 😸: [Bubbu MOD APK](https://modhello.com/bubbu/)
 ### Fitur Bubbu MOD APK
 
 - **Unlimited Coins**: Beli makanan dan pakaian tanpa batas.
